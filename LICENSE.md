@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced new token sniper bot | token-launch-monitoring + liquidity-pool-analysis, the #1 new token sniper bot. Includes token-launch-monitoring and
 
 
 
